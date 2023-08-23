@@ -23,7 +23,7 @@ The party immediately began debating whether he was trustworthy or not, and what
 
 They were successful in knocking Elmer unconscious, though a well-placed crossbow bolt to the chest incapacitated Isaiah for the duration of the fight. After healing their comrade and gathering whatever they could off of Elmer's unconscious body, the party left the ruins and headed back to the main path. Before leaving, Roxanna left him a loaf of bread as an apology.
 
-### Bandit Ambush
+### Bandit ambush
 
 Continuing north, the forest grew thicker and the party grew tired. After taking a short rest to recover, they eventually came across a group of travelling merchants that were being assaulted by bandits. The party came to their rescue, defeating the bandits and looting what they could off their bodies. As thanks, the merchants gave them a strange reward; a sprig of a strange purple plant that they had never seen before.
 
