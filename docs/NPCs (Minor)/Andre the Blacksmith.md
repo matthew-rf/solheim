@@ -1,0 +1,1 @@
+**Andre the Blacksmith** is a dwarf NPC. He works at the armory in [[Fonsmyth]]. where he makes weapons and armor for the military.

@@ -1,0 +1,1 @@
+**Officer Reyn** is a human NPC. He is a newbie soldier that resides in [[Fonsmyth]]. He was captured by a Giant Wolf Spider and saved by the party in [[Session 1 - The Giant Wolf Spider]].

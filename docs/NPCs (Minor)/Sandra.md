@@ -1,0 +1,1 @@
+**Sandra** is an elf NPC. She is a barmaid at the Hearthome Tavern in [[Fonsmyth]].

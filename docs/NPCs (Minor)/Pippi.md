@@ -1,0 +1,1 @@
+**Pippi** is a halfling NPC. She works at Pippi's Inn in [[Fonsmyth]].

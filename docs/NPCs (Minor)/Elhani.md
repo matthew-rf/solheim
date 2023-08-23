@@ -1,0 +1,1 @@
+Elhani is a gnome NPC. She runs a brewery in [[Fonsmyth]] that sells potions and similar wares to travelers.

@@ -1,0 +1,1 @@
+**Shinji** is a human NPC. He runs a small baking stand in [[Fonsmyth]], and attends service at the local Church of Adenine.
