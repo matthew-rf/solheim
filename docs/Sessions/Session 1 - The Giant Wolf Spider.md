@@ -1,4 +1,4 @@
-**Session 1 - The Giant Wolf Spider** was the first session of [[index|The Wounds of Solheim]], played on August 15th, 2023.
+**Session 1 - The Giant Wolf Spider** was the first session of [[index|Wounds of Solheim]], played on August 15th, 2023.
 ## Summary
 
 ### Arrival at Fonsmyth
