@@ -46,7 +46,6 @@ Roxanna offered to carry Reyn's body home. While they had a close call when trav
 Before settling in for the night, Cloggard sold most of his loot to [[Andre the Blacksmith]] for a disappointing price. Giselle also attempted to force the Church of Adenine's door open with her crowbar out of sheer spite, but failed to break through the hefty barricades. After their evening romps, they returned to Pippi's Inn and slept for the night.
 ## Featured Characters
 
-**New**  
 * [[Cloggard Targaryen]]
 * [[Giselle Gewelle]]
 * [[Isaiah Kasel]]
